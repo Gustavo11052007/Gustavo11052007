@@ -1,4 +1,4 @@
-###Ola meu nome é Gustavo,tenho 16 anos,adoro esportes,espero ter um futuro muito bom
+###Ola meu nome é Gustavo,tenho 16 anos,ma meu apelido é pablo emilio escobar 
   👋
 
 <!--
