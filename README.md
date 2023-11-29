@@ -1,4 +1,4 @@
-Ola meu nome é Gustavo,tenho 16 anos,ma meu apelido é pablo emilio escobar 
+Ola meu nome é Gustavo,tenho 16 anos,ma meu apelido é pablo emilio escobar. 
 Adoro jogar aquele Fortiinz de cria, muito bom estou virando proplayer acabarei com todos os enzos ruins 0 earnis
 😄 Pronouns:pega casadas, betoneira de 14v.
 
